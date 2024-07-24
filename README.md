@@ -4,3 +4,4 @@
 - [https://www.youtube.com/channel/UCNP533OjFFa-Mf979AEBZfA](https://www.youtube.com/channel/UCNP533OjFFa-Mf979AEBZfA)
 - [https://www.pinterest.com/MadetojaEmma](https://www.pinterest.com/MadetojaEmma)
 - [https://x.com/Qualalay](https://x.com/Qualalay)
+- [https://www.pinterest.com/pin/920986192542031292](https://www.pinterest.com/pin/920986192542031292)
